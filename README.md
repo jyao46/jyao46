@@ -1,4 +1,4 @@
-## Hi I'm Jessica! 👋
+## Hi, I'm Jessica! 👋
 
 I'm a rising junior at UCLA studying Data Science and Economics, passionate about using AI and machine learning to solve real-world problems! I'm a big fan of creative problem solving and building projects that make an impact, and I'm always looking for opportunities to learn, grow, and work with others.
 
