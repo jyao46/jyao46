@@ -6,7 +6,7 @@ I'm a rising junior at UCLA studying Data Science and Economics, passionate abou
 
 🌱 I’m currently learning how to do the worm
 
-📫 How to reach me: jessicayao26@g.ucla.edu, [LinkedIn](https://www.linkedin.com/in/jessica-yao5/)
+📫 How to reach me: jessicayao26@g.ucla.edu or [LinkedIn](https://www.linkedin.com/in/jessica-yao5/)
 
 😄 Pronouns: she/her
 
